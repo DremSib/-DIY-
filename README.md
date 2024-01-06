@@ -1,1 +1,1 @@
-# -DIY-
+# List of DIY synthesizers
